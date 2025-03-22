@@ -1,3 +1,6 @@
 - 👋 Hi, I’m @GanFish
-- if you do not like my software,please do not say anything.
+- if you do not like my software,please tell me why do not you like.
+- that can makes my software better!
+- I will sincerely listen to your advice!
+- thanks for your using.
 - thank you very much!
