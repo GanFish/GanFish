@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GanFish
+- if you do not like my softwear,please do not say anything.
+- thank you very much!
